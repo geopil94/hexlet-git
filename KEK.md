@@ -1,2 +1,0 @@
-KEKIS
-LOLIS
